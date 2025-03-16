@@ -1,1 +1,1 @@
-All my work on computer science master degree college that I pretend to upload and get back to it for study and references.
+All my work on computer science bachelor degree college that I feel that would be worth to upload and get back to it for study and references.
